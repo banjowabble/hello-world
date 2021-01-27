@@ -1,2 +1,4 @@
 # hello-world
-just doing the tutorial
+
+69 lmao 420
+why am i still here, just to suffer
